@@ -1,2 +1,4 @@
 # vanity-sniper-discord
-Discord Vanity Sniper
+milletinkini gormeyen kendisininkini en iyi sanarmis.
+
+gotunuz kalktiginda elimiz kalkacak.
